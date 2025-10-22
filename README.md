@@ -1,2 +1,0 @@
-# Stephen-portfolio-
-My portfolio 
